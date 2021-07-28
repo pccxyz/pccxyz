@@ -1,4 +1,4 @@
-### Hi there, I'm Mithat - aka voesxyz👋
+### Hi there, I'm Polat - aka pccxyz👋
 
 ## I'm still a student developer
 
